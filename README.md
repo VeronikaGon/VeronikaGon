@@ -30,7 +30,7 @@
 
 ## Контакты
 
-- Email: **sparepost****05@****mail****.****ru**;** **goncharuk****05@****vk****.****com**
+- Email: [**sparepost05@mail.ru**](mailto:sparepost05@mail.ru)**;** [**goncharuk05@vk.com**](mailto:goncharuk05@vk.com)
 - Telegram: [**https://t.me/Vivi_Vivivka**](https://t.me/Vivi_Vivivka)
 
 
